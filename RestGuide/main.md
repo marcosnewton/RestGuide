@@ -1,3 +1,5 @@
+# Rest Guide
+
 Rest Guide, a product that focuses on white noise meditation decompression and is completely free of advertising, helps you relax and stay focused in one minute and enter an efficient learning position.
 
 If you are suffering from insomnia caused by stress in your life or workplace, try using this app and he will help you relax! If you need to listen to your inner self, the Rest Guide is a highly recommended choice! If you want to mix your favorite sounds, the Rest Guide is an indispensable aid! You can customize the mix of sounds as well as the size to create your own audio!!!
